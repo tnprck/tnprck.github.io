@@ -9,4 +9,10 @@ A Miami serial killer, also called the Bayharbour Butcher.
 * loves his job (blood spatter analysis)
 * loves his boat, especially when using it to dump bodies in the ocean
 
+Dexter likes to introduce a kill by saying:  
+> Tonight's the night
+
 <img src="https://static.tvtropes.org/pmwiki/pub/images/dextervwx2014_1898.jpg" />
+
+
+
